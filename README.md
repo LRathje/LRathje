@@ -1,1 +1,1 @@
-## Please check my profile at https://www.linkedin.com/in/larsrathje/
+## Please check my profile at [LinkedIn](https://linkedin.com/in/larsrathje)
